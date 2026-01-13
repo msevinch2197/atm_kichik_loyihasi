@@ -1,0 +1,1 @@
+# atm_kichik_loyihasi
